@@ -1,1 +1,0 @@
-# Mentality-AI
